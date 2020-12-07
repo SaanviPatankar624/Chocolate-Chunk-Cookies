@@ -1,0 +1,12 @@
+2 cups white sugar,
+2 cups brown sugar,
+2 cups butter - softened,
+4 eggs,
+1 tsp salt,
+2 tsp baking powder,
+2 tsp baking soda,
+2 tsp vanilla,
+5 cups flour,
+4 cups oatmeal,
+4 hershey candy bars, broken into chunks,
+1 cup walnuts {optional}.
